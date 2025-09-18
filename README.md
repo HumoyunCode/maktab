@@ -1,0 +1,1 @@
+Maktab projectini yaratishni boshladik
